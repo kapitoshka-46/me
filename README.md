@@ -1,2 +1,2 @@
 # me
-info about me
+i am a stundent now !!
